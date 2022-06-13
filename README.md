@@ -4,6 +4,7 @@ Olá! Bem vindo à minha coleção dos meus escritos - textos e poemas - aqui ne
 
 #### ***Versos de uma alma perdida:***
 
+- A porta não está mais aberta
 - Apenas pó 
 - Como no começo
 - Conserte
