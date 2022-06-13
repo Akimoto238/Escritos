@@ -8,7 +8,7 @@ Dores diferentes
 
 Sentimentos diferentes
 
-
+///
 
 Formas de pensar alteradas
 
@@ -18,7 +18,7 @@ Mágoas recentes
 
 Serenidade mortal
 
-
+///
 
 Espero que
 
@@ -28,7 +28,7 @@ Pois
 
 Feliz seja
 
-
+///
 
 Sorria e seja forte
 
@@ -38,6 +38,6 @@ Não se arrependa
 
 Jogue a culpa no outro e se sinta bem.
 
-
+///
 
 Até o dia em que nossos cadáveres putrefatos tenham o mesmo destino. 

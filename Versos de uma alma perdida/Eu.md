@@ -8,7 +8,7 @@ Apenas chato
 
 Estou errado, quebrado.
 
-
+///
 
 Eu odeio como escrevo
 
@@ -22,7 +22,7 @@ odeio ser tão chato, tão burro.
 
 odeio os meus assuntos
 
-
+///
 
 Quero me consertar, ser ideal
 

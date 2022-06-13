@@ -8,6 +8,8 @@ Boas conversas
 
 Parece distante isso
 
+///
+
 
 Como em um sonho
 
@@ -17,6 +19,8 @@ Que fosse mais uma vez
 
 Como no começo, bom.
 
+///
+
 
 Mas como todo sonho...
 
@@ -25,6 +29,8 @@ Mas como todo sonho...
 A realidade é esmagadora
 
 Uma porcaria.
+
+///
 
 
 Nessa mesma cama, como no começo.
