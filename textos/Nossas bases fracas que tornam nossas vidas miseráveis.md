@@ -1,4 +1,4 @@
-### Nossas bases fracas que tornam nossas vidas miseráveis
+### *Nossas bases fracas que tornam nossas vidas miseráveis*
 
 ​	Durante nossa vida nós cometemos erros enormes, principalmente em nossa juventude, a época onde somos os mais tolos possíveis! Levamos ao máximo nossa burrice, enquanto nos gloriamos na lama da cova que cavamos a cada escolha ruim fundamentada em nossos pensamentos simples e fúteis. 
 
