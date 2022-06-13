@@ -8,7 +8,7 @@ Mas eu estava errado, nunca havia vivido antes...
 
 Seres humanos não tem vida por si só
 
-
+///
 
 Só encontrei a vida em ti
 
