@@ -8,6 +8,8 @@ Olá! Bem vindo à minha coleção dos meus escritos - textos e poemas - aqui ne
 - Apenas pó 
 - Como no começo
 - Conserte
+- Estrago
+- Está tudo bem
 - Eu
 - Serenidade Mortal
 
