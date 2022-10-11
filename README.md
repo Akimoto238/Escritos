@@ -1,4 +1,4 @@
-# ***Coletânea Samuel Akimoto***
+# ***Coletânea de Samuel Akimoto***
 
 Olá! Bem vindo à minha coleção dos meus escritos - textos e poemas - aqui nesta coleção temos as seguintes "obras":
 
