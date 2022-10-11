@@ -12,6 +12,10 @@ Olá! Bem vindo à minha coleção dos meus escritos - textos e poemas - aqui ne
 - Está tudo bem
 - Eu
 - Serenidade Mortal
+- Fool
+- IF
+- Você é meu fantasma?
+- Eu queimaria tudo isso
 
 #### **Ressoar da Alma:**
 
