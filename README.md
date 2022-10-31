@@ -16,6 +16,8 @@ Olá! Bem vindo à minha coleção dos meus escritos - textos e poemas - aqui ne
 - IF
 - Você é meu fantasma?
 - Eu queimaria tudo isso
+- Miss You
+- Olhares
 
 #### **Ressoar da Alma:**
 
